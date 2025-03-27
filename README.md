@@ -66,6 +66,6 @@ Our goal is to provide designers and businesses with the resources they need to 
 
 We regularly update our collection with new and exciting mockups. Be sure to bookmark Mockupdaddy.com and follow us on social media to stay informed about our latest additions.
 
-Thank you for visiting this repository and exploring our collection of **Free letterhead Mockup**. We hope these resources will be valuable in your design endeavors. Visit**[Mockupdaddy](https://www.mockupdaddy.com/)** to download your free mockups today!
+Thank you for visiting this repository and exploring our collection of Free letterhead Mockup. We hope these resources will be valuable in your design endeavors. Visit **[Mockupdaddy](https://www.mockupdaddy.com/)** to download your free mockups today!
 
 ---
